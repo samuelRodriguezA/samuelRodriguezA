@@ -1,6 +1,6 @@
 # 🌿 Samuel Rodriguez Armesto
 
-**`Digital Overlord (Developer & Designer)`**
+**`Software Tester and Full-Stack Developer`**
 
 👋 My name is Samuel Rodriguez. Currently I am a Software engineering student with experience in small business development with the support of social networks, content creation, marketing, and customer service. I consider myself a proactive, team player, adaptable, resilient, eager to learn, and a responsible person capable of creatively solving any problem.
 
